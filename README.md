@@ -41,6 +41,8 @@ The workforce at Telen HR appears generally well-balanced, with a healthy age di
     With employee numbers declining in higher age groups, The business should invest in targeted training, mentorship, and career progression programs to prepare younger employees for senior roles and reduce future leadership gaps.
     
 
+
+
 # Contact & Support
 
 **For questions or collaboration**
